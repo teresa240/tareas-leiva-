@@ -9,3 +9,5 @@ Sin embargo, la segunda idea la tenemos más trabajada y creemos que existe mate
 
 Creeemos que hay grandes posibilidades de encontrar historias. 
 Nuestra hipótisis es que la noticia estará en la comparación de las crifras Chilenas con cifras internacionales
+
+https://miro.com/app/board/uXjVKm1xqsM=/
